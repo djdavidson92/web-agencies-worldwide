@@ -17,6 +17,7 @@
 ##### Cleveland
 
 - [TWIST Creative](http://twist-creative.com)
+- [Long Weekend[(http://longweekend.xyz)
 
 ##### Dayton
 
