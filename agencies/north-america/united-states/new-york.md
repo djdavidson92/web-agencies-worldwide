@@ -17,6 +17,7 @@
 - [Red Antler](http://redantler.com)
 - [This Also](http://thisalso.com)
 - [Work & Co](http://work.co)
+- [SOLVED Consulting](http://solvedconsulting.com)
 
 ##### New York
 
